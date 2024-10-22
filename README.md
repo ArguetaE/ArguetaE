@@ -39,8 +39,6 @@
 
 ## 📫 ¿Cómo contactarme?
 
-## ¿Cómo contactarme?
-
 - *Email:* [Perfil-Email](mailto:joseramonarguetaespinoza900@gmail.com)
 - *LinkedIn:* [Perfil LinkedIn](https://www.linkedin.com/in/jose-argueta-b1a820243/)
 - *Twitter (X):* [Perfil Twitter](https://x.com/JoseArgueta23)
